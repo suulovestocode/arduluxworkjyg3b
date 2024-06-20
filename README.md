@@ -1,1 +1,0 @@
-# arduluxworkjyg3b
